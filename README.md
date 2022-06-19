@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @pescione
+- 👀 I’m interested in ethical hacking
+- 🌱 I’m currently learning Systems and Networking
+- 📫 How to reach me t.me/pescione_magico -- Pescione#4071
