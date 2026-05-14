@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @pescione
-- 👀 I’m interested in ethical hacking
-- 🌱 I’m currently learning Systems and Networking
-- 📫 How to reach me t.me/pescione_magico -- Pescione#4071
+- 👀 I’m interested in Ethical Hacking and Cybersecurity
+- 🎓 I’m a Computer Science student (2nd year) at the University of L'Aquila
+- 📫 How to reach me: t.me/pescione_magico | Discord: pescione (590982236787048457)
