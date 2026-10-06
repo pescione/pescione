@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @pescione
 - 👀 I’m interested in Ethical Hacking and Cybersecurity
-- 🎓 I’m a Computer Science student (2nd year) at the University of L'Aquila
+- 🎓 I’m a Computer Science student (3nd year) at the University of L'Aquila
 - 📫 How to reach me: t.me/pescione_magico | Discord: pescione (590982236787048457)
